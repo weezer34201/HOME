@@ -1,1 +1,1 @@
-# HOME
+https://github.com/weezer34201/weezer/blob/4df0cd45380adfa97930ccab7f95933c028cb9b6/README.md
